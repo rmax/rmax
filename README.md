@@ -1,5 +1,16 @@
-### About 
+### News 
 
+👉🏽 Watch my story of [The Genesis of ChatGPT](https://youtu.be/32QqY2PQYC0) 🎬
+
+👉🏽 Read my poem to [The Majestic Illimani](https://www.linkedin.com/posts/rmaxespinoza_in-the-land-of-jallalla-illimani-stands-activity-7052293570426232832-ZaD8) 🗻
+
+👉🏽 Read my vision of [The Titikaka Lake in the year 3012](https://www.linkedin.com/posts/rmaxespinoza_culture-andes-titikaka-activity-7042849758809337856-Xny8) 🔮
+
+👉🏽 Read my [epic tale of Tupac Katari](https://www.linkedin.com/posts/rmaxespinoza_colonialism-aymara-rebellion-activity-7043353414788882432-HyrX)🗿
+
+👉🏽 Read my [epic tale of St Patrick](https://www.linkedin.com/posts/rmaxespinoza_late-fourth-century-britannia-activity-7042832519573975041-pAnT) 🍀
+
+👉🏽 Follow me on [Twitter at @rmaxdev](https://twitter.com/rmaxdev) 🐥
 
 <!--
 **rmax/rmax** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -15,6 +26,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: he/him.
 - ⚡ Fun fact: I have a mention on the wikipedia.
 -->
+
+### About
 
 🙋🏽‍♂️ Max is a highly skilled software engineer with experience in training and deploying large machine learning models in production services. He is currently working at an AI company in the Netherlands, where he is known for his ability to stay current with the latest advances in deep learning and his dedication to delivering high-quality results. In addition to his technical expertise, Max is also committed to maintaining a healthy work-life balance through activities like capoeira and yoga.
 
