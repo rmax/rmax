@@ -6,11 +6,11 @@
 
 👉🏽 Read my vision of [The Titikaka Lake in the year 3012](https://www.linkedin.com/posts/rmaxespinoza_culture-andes-titikaka-activity-7042849758809337856-Xny8) 🔮
 
-👉🏽 Read my [epic tale of Tupac Katari](https://www.linkedin.com/posts/rmaxespinoza_colonialism-aymara-rebellion-activity-7043353414788882432-HyrX)🗿
+👉🏽 Read my epic tale of [Tupac Katari](https://www.linkedin.com/posts/rmaxespinoza_colonialism-aymara-rebellion-activity-7043353414788882432-HyrX)🗿
 
-👉🏽 Read my [epic tale of St Patrick](https://www.linkedin.com/posts/rmaxespinoza_late-fourth-century-britannia-activity-7042832519573975041-pAnT) 🍀
+👉🏽 Read my epic tale of [St Patrick](https://www.linkedin.com/posts/rmaxespinoza_late-fourth-century-britannia-activity-7042832519573975041-pAnT) 🍀
 
-👉🏽 Follow me on [Twitter at @rmaxdev](https://twitter.com/rmaxdev) 🐥
+👉🏽 Follow me on Twitter at [@rmaxdev](https://twitter.com/rmaxdev) 🐥
 
 <!--
 **rmax/rmax** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
