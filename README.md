@@ -1,3 +1,5 @@
+![Sun Island](banner.jpeg)
+
 ### News 
 
 👉🏽 Watch my epic story of [The Genesis of ChatGPT](https://youtu.be/32QqY2PQYC0) 🎬
