@@ -1,6 +1,6 @@
 ### News 
 
-👉🏽 Watch my story of [The Genesis of ChatGPT](https://youtu.be/32QqY2PQYC0) 🎬
+👉🏽 Watch my epic story of [The Genesis of ChatGPT](https://youtu.be/32QqY2PQYC0) 🎬
 
 👉🏽 Read my poem to [The Majestic Illimani](https://www.linkedin.com/posts/rmaxespinoza_in-the-land-of-jallalla-illimani-stands-activity-7052293570426232832-ZaD8) 🗻
 
