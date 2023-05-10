@@ -2,7 +2,7 @@
 
 ### News 
 
-👉🏽 Watch my own story [Max's Journey: From Passion to Purpose with Python](https://www.youtube.com/watch?v=RCzhZWr-nco) 🎬
+👉🏽 Watch my own journey [From Passion to Purpose with Python](https://www.youtube.com/watch?v=RCzhZWr-nco) 🎬
 
 👉🏽 Watch my epic story of [The Genesis of ChatGPT](https://youtu.be/32QqY2PQYC0) 🎬
 
