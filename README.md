@@ -2,6 +2,8 @@
 
 ### News 
 
+👉🏽 Watch my own story [Max's Journey: From Passion to Purpose with Python](https://www.youtube.com/watch?v=RCzhZWr-nco) 🎬
+
 👉🏽 Watch my epic story of [The Genesis of ChatGPT](https://youtu.be/32QqY2PQYC0) 🎬
 
 👉🏽 Read my poem to [The Majestic Illimani](https://www.linkedin.com/posts/rmaxespinoza_in-the-land-of-jallalla-illimani-stands-activity-7052293570426232832-ZaD8) 🗻
