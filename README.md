@@ -1,6 +1,6 @@
 ![Sun Island](banner.jpeg)
 
-### News 
+### Highlights
 
 👉🏽 Watch my video on [How Syntheric Media is Changing the World](https://www.linkedin.com/posts/rmaxespinoza_ai-syntheticmedia-generativeai-activity-7084141358998806528-PqJ3)
 
